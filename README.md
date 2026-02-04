@@ -10,6 +10,7 @@ In Bangladesh, industrial hemp cultivation remains prohibited due to:
 - Societal misconceptions equating hemp with drug use
 
 These gaps prevent Bangladesh’s textile and agricultural sectors from accessing a globally growing sustainable fiber industry.
+As a result, Bangladesh risks missing a strategic opportunity in sustainable textiles, rural development, and green industrial growth.
 
 ## 🎯 Purpose of This Platform
 This platform aims to:
