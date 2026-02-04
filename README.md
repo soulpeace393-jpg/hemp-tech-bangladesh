@@ -47,7 +47,8 @@ This platform aims to:
 
 ## 👤 Founder
 **Name:** Md. Tamim Islam  
-**Background:** Textile Engineering (Yarn Manufacturing)  
+**Background:** B.Sc in Textile Engineering 
+              (Specialized in Yarn Manufacturing)  
 **Focus:** Sustainable fibers, hemp technology, textile innovation  
 
 📅 **Project initiated:** 2026
